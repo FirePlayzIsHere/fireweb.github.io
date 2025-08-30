@@ -1,1 +1,1 @@
-## A Website Where Will Be Shown Informations Of# FirePlayz
+## A Website Where Will Be Shown Informations Of FirePlayz
